@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Manthan Nagose
-**A passionate Software Developer || DevOps Engineer || Frontentend Developer || Currently wishing for Web 3**
+**A passionate Software Developer || DevOps Engineer || Frontentend Developer || Aspiring Web3 professional**
 
 Email Me 👉 ✉️ **nagosemanthan@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
